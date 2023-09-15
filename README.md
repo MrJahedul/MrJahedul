@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrJahedul
+- 👀 I’m interested in Forex Trading
+- 🌱 I’m currently learning Financial Markets
+- 💞️ I’m looking to collaborate on Forex Trade
